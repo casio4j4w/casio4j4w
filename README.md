@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @casio4j4w
 - 👀 I’m interested in everything alive
 - 🌱 I’m currently learning how to survive
-- 💞️ I’m looking to collaborate on surviving in the earth
+- 💞️ I’m looking to collaborate on living in the earth
 - 📫 You should know how to reach me 
 
 <!---
